@@ -15,7 +15,7 @@ Estas navidades han estado llenas de momentos especiales, alegría y muchas expe
 
 ## Vida Social
 - **Salidas con amigos**: Pasé tiempo de calidad saliendo con mis amigos. Fuimos a cenar, caminamos por la ciudad decorada con luces navideñas y recordamos anécdotas divertidas. Cada salida estuvo llena de risas y buenos momentos.
- ![image](https://github.com/user-attachments/assets/47172299-3375-4fed-9f56-c14d01a6e298)
+ ![image](https://github.com/user-attachments/assets/fe938b98-3d6b-4286-a6cb-2ac46d9b2147)
 
 
 ## Tiempo en Familia
