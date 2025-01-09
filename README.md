@@ -11,6 +11,7 @@ Estas navidades han estado llenas de momentos especiales, alegría y muchas expe
 ## Diversión
 - **Feria**: Visité la feria, donde pasé un rato increíble. La música en vivo, las luces brillantes y las atracciones emocionantes crearon una atmósfera única. También aproveché para probar algunos antojitos típicos y jugar en los puestos de feria.
  ![image](https://github.com/user-attachments/assets/8901280d-6e0f-400c-8fd8-17127bd37d10)
+ ![video](https://www.youtube.com/watch?v=HwRamYe5a2U&ab_channel=Megaferias010)
 
 
 ## Vida Social
